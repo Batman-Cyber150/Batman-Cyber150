@@ -23,7 +23,7 @@
 
 ### MY Bio in Tech world.
 - I started liking **computer work** after my high school, **2020**.
-- afer i met:[Desire](https://github.com/Deewiliams) who give his computer and same lessons for me to practice🌟
+- after i met:[Desire](https://github.com/Deewiliams) who give me his computer and same lessons for me to practice on.🌟
 - and then i met [Tr Olivier](https://www.linkedin.comwho/in/olivierjm/?originalSubdomain=zm) in **2021** during an enterprenure seminor. 
 - In **2022**, [Desire](https://github.com/Deewiliams) sacrificed his time to teach us programming, that's when i started my **HTML** and **CSS**.
  they played a big role in my    programming journey. :pray:
