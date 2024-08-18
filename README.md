@@ -15,7 +15,7 @@
 
  **Thank you for checking up on me** :relaxed:
 
- ## Who's is  thaure the **batman**🦇? :thinking:
+ ## Who is  thaure the **batman**🦇? :thinking:
  - well, I'm that boy who grow up thinking he could go to the moon and come back😆, otherwise i'm an electrical engineer🧰
  - Based in **lusaka**,**Zambia**🇿🇲
 
