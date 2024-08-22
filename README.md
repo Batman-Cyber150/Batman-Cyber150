@@ -1,7 +1,7 @@
 # MY PROFILE🦇
 
- :wave: hey! I'm **johnson thaure**.
- <br/>
+ :wave: hey! I'm **johnson tahare**.
+ <br/
  <br />
 
 <a href="https://x.com/JohnsonTahure?t=QCWV_xp2xG6Zq-86gQU4jQ&s=09">
@@ -15,7 +15,7 @@
 
  **Thank you for checking up on me** :relaxed:
 
- ## Who is  thaure the **batman**🦇? :thinking:
+ ## Who is  tahure the **batman**🦇? :thinking:
  - well, I'm that boy who grow up thinking he could go to the moon and come back😆, otherwise i'm an electrical engineer🧰
  - Based in **lusaka**,**Zambia**🇿🇲
 
