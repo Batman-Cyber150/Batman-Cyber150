@@ -2,7 +2,7 @@
 
  :wave: hey! I'm **johnson tahare**.
  <br/
- <br />
+ 
 
 <a href="https://x.com/JohnsonTahure?t=QCWV_xp2xG6Zq-86gQU4jQ&s=09">
   <img align="left" alt="johnson's Instagram" width="24px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/twitter.svg" />
